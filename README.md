@@ -4,7 +4,7 @@
 - 🌱 I’m currently learning ... Python
 - 👯 I’m looking to collaborate on ... NA
 - 🤔 I’m looking for help with ... NA
-- 💬 Ask me about ... Anyway
+- 💬 Ask me about ... Anything
 - 📫 How to reach me: ... ?
 - 😄 Pronouns: ... ?
 - ⚡ Fun fact: ... 0
